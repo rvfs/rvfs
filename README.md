@@ -3,7 +3,7 @@
 ## Confia, você não perde por esperar 😉  
 
 ### Sobre mim
-* 💫 20 anos
+* 💫 22 anos
 * 😄 Entusiasta de uma boa conversa
 * 📖 Mais livros, por favor!
 * 🏋️‍♂️ Gym Lover
